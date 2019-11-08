@@ -1,1 +1,0 @@
-# estadodeshock.github.io
